@@ -8,4 +8,4 @@ Bachelor's Degree in Computer Applications
 
 ### Work Experience
 
- Senior System Administrator
+ Senior System Administrator at Canlan Sports Inc.
